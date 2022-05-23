@@ -1,0 +1,1 @@
+# okul_icin_proje
